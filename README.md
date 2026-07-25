@@ -1,0 +1,1 @@
+# Ampas_Dark_System.bktgs1.q
